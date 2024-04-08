@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @agraj-smallcase
+- 👋 Hi, I’m Agraj Agrawal
 - Let's connect on [Linkedin](https://www.linkedin.com/in/agrajagrawal/) 
 
 <!---
